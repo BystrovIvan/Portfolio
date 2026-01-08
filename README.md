@@ -1,5 +1,2 @@
 # Portfolio
-
-
-https://github.com/user-attachments/assets/efa87f6f-855d-4129-b03c-ff9b849a85c5
-
+![сова](https://github.com/user-attachments/assets/df096be0-b926-4a91-89ba-eac5b9eb11ca)
